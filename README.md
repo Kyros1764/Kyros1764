@@ -3,6 +3,7 @@
 - I like making random stuff
 - This is where I upload my personal codes here
 - 🇫🇷 FRENCH 🇫🇷
+- CURRENT LANGUAGES : Lua + Py
 ## MY SOCIALS (mainly the same username lol) :
 - RBX : nonoah0001
 - EPIC : Nonoah0001
