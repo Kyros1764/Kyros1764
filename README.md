@@ -7,6 +7,7 @@
 - RBX : nonoah0001
 - EPIC : Nonoah0001
 - DSC : nonoah0001
+- GD : nonoah002
 ## MORE INFO : 
 - From 8AM to 6PM I won't be active because of school (French time) 
 <!--
