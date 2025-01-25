@@ -6,7 +6,7 @@
 - CURRENT LANGUAGES : Lua + Py
 ## MY SOCIALS (mainly the same username lol) :
 - RBX : nonoah0001
-- EPIC : Nonoah0001
+- EPIC : KyrosFNBR
 - DSC : nonoah0001
 - GD : nonoah002
 ## MORE INFO : 
